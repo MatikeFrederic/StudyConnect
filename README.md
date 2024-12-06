@@ -1,1 +1,1 @@
-# StudyConnect
+# Studygroup10
